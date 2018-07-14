@@ -1,0 +1,1 @@
+Menginput jurnal the role of commitment
